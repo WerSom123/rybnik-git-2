@@ -1,0 +1,1 @@
+Weronika Sombrowski SDA szkolenie
